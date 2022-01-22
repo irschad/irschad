@@ -1,1 +1,1 @@
-Cloud Foreman (Cloud DevOps Engineer and Solutions Architect)
+Cloud Foreman (Cloud Engineer, Cloud DevOps Engineer and Solutions Architect)
