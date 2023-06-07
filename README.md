@@ -1,1 +1,1 @@
-Cloud Architect & DevOps Engineer
+Cloud & DevOps Engineer
