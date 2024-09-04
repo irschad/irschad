@@ -1,1 +1,1 @@
-Consultant - Enterprise Integrations, Cloud & DevOps
+Consultant - Cloud & DevOps
